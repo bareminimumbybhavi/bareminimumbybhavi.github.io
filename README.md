@@ -1,1 +1,1 @@
-# bareminimumbybhavi
+# bareminimumbybhavi.github.io
